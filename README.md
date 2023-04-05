@@ -93,4 +93,4 @@ Atleast Give A Star and Fork The Repo 🖤
 ☞ `OWNER_ID` - Put your owner id.<br>
 
 ## 💖 ᴄʀᴇᴅɪᴛs
-- » [𝐌𝐑 𝐀𝐘𝐔𝐒𝐇](https://github.com/Itzvenomo)
+- » [𝐎𝐆 𝐀𝐒𝐓𝐀𝐀𝐃](https://github.com/Dillu1984)
